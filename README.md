@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @HHAAris
+- 👋 Hi, I’m @HH
 - 👀 I’m interested in graphics
 - 🌱 I’m currently learning Javascript 
 - 💞️ I’m looking to collaborate on projects which pique my interest.
