@@ -5,4 +5,4 @@ like anime gracias and animations
 As a hobby i make sketches
 feel free to talk to me 
 discord @hh4409
-insta :@uwu_nothing_special
+insta : @uwu_nothing_special
